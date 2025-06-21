@@ -32,7 +32,7 @@ NutriDuck is available on:
 ## 📞 Contact
 
 For privacy-related questions or concerns:
-- **Email:** emreliman@example.com
+- **Email:** emreliman1999@gmail.com
 - **Response Time:** Within 48 hours
 
 ## 📅 Last Updated
